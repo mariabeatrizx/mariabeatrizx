@@ -1,4 +1,4 @@
-# Hi there, I'm Maria 👩🏻‍💻
+# Hi there, I'm Maria 🙎🏻‍♀🙋🏻‍♀️
 Currently, a Business student at [@UFPE](https://www.ufpe.br/administracao-bacharelado-ccsa), Systems Analysis and Development student at [@Senac](https://faculdadesenacpe.edu.br/) and Intern at [@Bernhoeft](https://www.bernhoeft.com.br/)
 
 ## Quick facts about me 🌟
